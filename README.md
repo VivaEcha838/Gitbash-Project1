@@ -1,1 +1,1 @@
-# Gitbash-Project1
+The recipe here is Dame Time shooting. Dame Time stands for big shots late in games. I have been able to learn from his film, and to all of the basketball players out there, this is how to shoot like Damian Lillard. CLUTCH! 
